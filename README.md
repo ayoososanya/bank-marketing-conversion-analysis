@@ -103,4 +103,4 @@ strongest drivers of conversion likelihood.
 
 ## Author
 Ayoola Ososanya
-[LinkedIn](https://linkedin.com/in/ayoola-ososanya)
+[LinkedIn](https://www.linkedin.com/in/ayoolaososanya/)
